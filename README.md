@@ -1,16 +1,21 @@
-## Hi there 👋
+![](https://komarev.com/ghpvc/?username=leomanfred)
 
-<!--
-**piastrism/piastrism** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<sup><p align="center">![landoscargif](https://s4.ezgif.com/tmp/ezgif-4a34c8f748a53690.gif)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<p align="center"><a href="https://open.spotify.com/track/6YCoEXslhHQCcQeWWvzbJJ?si=e4836e2b2b044f5b)">❝ 𝙞𝙩 𝙤𝙣𝙡𝙮 𝙩𝙖𝙠𝙚𝙨 𝙖 𝙬𝙚𝙚𝙠 𝙤𝙧 𝙩𝙬𝙤, 𝙩𝙤 𝙗𝙧𝙚𝙖𝙠 𝙖 𝙜𝙤𝙙-𝙛𝙚𝙖𝙧𝙞𝙣𝙜 𝙢𝙖𝙣. ❞</a>
+  <sup><p align="center">✩ 𝗣𝗜𝗔𝗦𝗧𝗥𝗜𝗦𝗠 ✩</p><sup>
+    <p align="center">𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦</p>
+<p align="center">𝘶𝘳𝘣𝘦𝘹, 𝘵𝘩𝘳𝘪𝘧𝘵𝘪𝘯𝘨, 𝘨𝘳𝘦𝘦𝘬 𝘮𝘺𝘵𝘩𝘰𝘴, 𝘵𝘩𝘦 𝘮𝘦𝘥𝘪𝘤𝘢𝘭 𝘧𝘪𝘦𝘭𝘥,</p>
+<p align="center">𝘢𝘥𝘶𝘭𝘵 𝘴𝘸𝘪𝘮, 𝘳𝘢𝘤𝘪𝘯𝘨, 𝘩𝘰𝘤𝘬𝘦𝘺, 𝘴𝘵𝘪𝘭𝘭 𝘸𝘢𝘬𝘦𝘴 𝘵𝘩𝘦 𝘥𝘦𝘦𝘱 & 𝘱𝘶𝘱𝘱𝘦𝘵𝘳𝘺.</p>
+<p align="center">𝗜𝗠𝗣𝗢𝗥𝗧𝗔𝗡𝗧 𝗡𝗢𝗧𝗜𝗖𝗘</p>
+    <p align="center">𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘢𝘤𝘵𝘪𝘰𝘯𝘴 𝘢𝘳𝘦 𝘯𝘰𝘵 𝘮𝘺 𝘰𝘸𝘯.</p>
+    <p align="center">𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘳𝘰𝘱𝘦 𝘮𝘦 𝘪𝘯 𝘶𝘯𝘭𝘦𝘴𝘴 𝘪 𝘢𝘮 𝘥𝘪𝘳𝘦𝘤𝘵𝘭𝘺 𝘪𝘯𝘷𝘰𝘭𝘷𝘦𝘥.</p>
+<p align="center">𝗕𝗬𝗜</p>
+<p align="center">𝘪 𝘩𝘢𝘷𝘦 𝘩𝘦𝘢𝘳𝘵 𝘢𝘳𝘳𝘩𝘺𝘵𝘩𝘮𝘪𝘢. 𝘪 𝘵𝘢𝘬𝘦 𝘣𝘳𝘦𝘢𝘬𝘴 𝘸𝘩𝘦𝘯 𝘯𝘦𝘦𝘥𝘦𝘥 𝘧𝘰𝘳 𝘮𝘺 𝘩𝘦𝘢𝘭𝘵𝘩.</p>
+    <p align="center">𝘪 𝘱𝘳𝘦𝘧𝘦𝘳 𝘤𝘭𝘦𝘢𝘳 𝘢𝘯𝘥 𝘰𝘱𝘦𝘯 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘤𝘢𝘵𝘪𝘰𝘯. 𝘪 𝘢𝘮 𝘤𝘳𝘪𝘵𝘪𝘤𝘢𝘭 𝘰𝘧 𝘮𝘺 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴.</p>
+    <p align="center">𝘰𝘤𝘤𝘢𝘴𝘪𝘰𝘯𝘢𝘭𝘭𝘺 𝘪 𝘶𝘴𝘦 𝘴𝘭𝘶𝘳𝘴 𝘪 𝘤𝘢𝘯 𝘳𝘦𝘤𝘭𝘢𝘪𝘮, 𝘢𝘭𝘰𝘯𝘨 𝘸𝘪𝘵𝘩 𝘷𝘶𝘭𝘨𝘢𝘳 𝘩𝘶𝘮𝘰𝘳 & 𝘭𝘢𝘯𝘨𝘶𝘢𝘨𝘦.</p>
+<p align="center">𝗗𝗡𝗜</p>
+<p align="center"><a href="https://dni-criteria.carrd.co/)"> 𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪</a> , 𝘮𝘪𝘯𝘰𝘳𝘴. 𝘪𝘧 𝘺𝘰𝘶 𝘧𝘦𝘵𝘪𝘴𝘩𝘪𝘻𝘦 𝘭𝘨𝘣𝘵𝘲 𝘳𝘦𝘭𝘢𝘵𝘪𝘰𝘯𝘴𝘩𝘪𝘱𝘴. 𝘪𝘧 𝘺𝘰𝘶 𝘴𝘦𝘹𝘶𝘢𝘭𝘪𝘻𝘦 𝘳𝘦𝘭𝘪𝘨𝘪𝘰𝘯 𝘰𝘳 𝘮𝘺𝘵𝘩𝘰𝘴.</p>
+    <p align="center">𝘵𝘤𝘤 & 𝘪𝘯𝘴𝘱𝘪𝘳𝘦𝘥 𝘮𝘦𝘥𝘪𝘢. 𝘱𝘳𝘰/𝘤𝘰𝘮/𝘥𝘢𝘳𝘬 𝘴𝘩𝘪𝘱. 𝘳𝘱𝘧. 𝘪𝘳𝘭𝘴. 𝘦𝘯𝘥𝘰 𝘴𝘺𝘴𝘵𝘦𝘮𝘴. 𝘥𝘳𝘢𝘮𝘢 𝘴𝘦𝘦𝘬𝘦𝘳𝘴. 𝘦𝘯𝘦𝘳𝘨𝘺 𝘷𝘢𝘮𝘱𝘪𝘳𝘦𝘴.</p>
