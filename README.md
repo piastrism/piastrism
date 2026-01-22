@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=leomanfred)
 
 
-<sup><p align="center">![landoscargif](https://64.media.tumblr.com/42763c2e3f2feafce1a08951bb53bac4/e41f98fd6f738229-58/s540x810/1e4c809284133e9907010b1bf44b23cf4ad9800b.gifv)
+<sup><p align="center">![tumblr_42763c2e3f2feafce1a08951bb53bac4_be3ec08a_540](https://github.com/user-attachments/assets/885375f5-0afc-4f2c-9da7-ffe68006409f)
 
 
 <p align="center"><a href="https://open.spotify.com/track/2cKovq3l6OJjhVVDbVKOsr?si=488a02dc0be149f0)">❝𝙣𝙤𝙬 𝙞 𝙖𝙙𝙢𝙞𝙧𝙚 𝙮𝙤𝙪, 𝙖𝙣𝙙 𝙩𝙝𝙖𝙩 𝙬𝙝𝙤𝙡𝙚 𝙨𝙝𝙤𝙬 𝙮𝙤𝙪 𝙙𝙤,</a>
